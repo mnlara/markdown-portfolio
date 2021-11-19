@@ -1,0 +1,3 @@
+* Hard-working
+* Dedicated
+* Motivated
